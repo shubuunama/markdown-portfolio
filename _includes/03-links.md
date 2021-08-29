@@ -1,1 +1,2 @@
-my linkdln profile [link] (https://electro598011251.wordpress.com/2019/09/28/display-of-my-electronics-project/)
+(![blur](https://user-images.githubusercontent.com/89735311/131262093-7ec3b3a9-4a96-4282-8c3d-666e3f509453.png)
+).
